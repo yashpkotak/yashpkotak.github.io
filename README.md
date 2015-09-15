@@ -1,2 +1,0 @@
-# yashpkotak.github.io
-Pages
